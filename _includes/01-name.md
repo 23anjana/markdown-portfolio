@@ -1,1 +1,1 @@
-# Hey there, this is Anjana A.
+# I am Anjana A, here is my portfolio.
